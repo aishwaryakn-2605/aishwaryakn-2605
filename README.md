@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am a BE student<br>
+Aspiring AI&ML branch|BE student<br>
 
 
 ## 🌐 Socials:
